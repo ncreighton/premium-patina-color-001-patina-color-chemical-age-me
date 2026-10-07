@@ -1,0 +1,2 @@
+# premium-patina-color-001-patina-color-chemical-age-me
+You've spent hours experimenting with patina chemicals, only to realize you have no system to track which color combinations actually work. The Patina Color &amp; Chemical Age Metal Craft Lab eliminates guesswork by giving you a organized, reusable reference for every successful formula you create.  This Notion template transforms scattered notes and f
